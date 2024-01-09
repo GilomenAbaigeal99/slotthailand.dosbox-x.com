@@ -1,0 +1,1 @@
+# slotthailand.dosbox-x.com
